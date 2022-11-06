@@ -3571,3 +3571,9 @@ But I'm not gonna lie down until I get there.
 > "Hijo, cuando participes en eventos deportivos, no importa si ganas o pierdes sino cuánto te emborrachas"
 
 *Homer J. Simpson*
+
+---------
+
+> "La tecnología no dá dobles mensajes. Si funciona, funciona, si no, no. Por eso los chicos la aman"
+
+*Julio Velazco*
